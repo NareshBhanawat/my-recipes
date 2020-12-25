@@ -1,0 +1,3 @@
+first boil half cup of water in a bowl for one maggi.
+when the water is boiled put mmaggi in it with its masala and mix it well .
+after 2 to 3 minutes stir it once and serve it into a plate with origano .
